@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Melissa0401
 - 👀 I’m interested in learning how to code
-- 🌱 I’m currently learning from the very basics, 100% begginer. 
+- 🌱 I’m currently learning from the very basics, 100% beginner. 
 - 💞️ Anyone that can give me any basic tips, please do 
 - 📫 How to reach me - pop me a message, I am friendly 
 
